@@ -1,0 +1,1 @@
+https://www.youtube.com/watch?v=z1-I78_4M1g <-- bom video para entender
